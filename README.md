@@ -13,7 +13,9 @@
 
 
 📫 How to reach me:
+
 📧 Email: bayardi.alvaro@gmail.com
+
 💬 LinkedIn: linkedin.com/in/alvaro-walter-bayardi-mederos-571922216
 
 
